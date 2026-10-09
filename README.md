@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/?username=cardstockbirthday&label=(੭ ;´ ⌂ `;)੭♡&color=CF5771)
+![](https://komarev.com/ghpvc/?username=cardstockbirthday&label=♡&color=CF5771)
